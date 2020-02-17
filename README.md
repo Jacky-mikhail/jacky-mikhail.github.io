@@ -1,1 +1,1 @@
-# jackymikhail.hub.io
+# jacky-mikhail.hub.io
